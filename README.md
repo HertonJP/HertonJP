@@ -6,4 +6,4 @@
 
 ## Contact Info
 - Mail: hertonjulius@gmail.com
-- [Portofolio](https://hertonjulius.carrd.co/)
+- [Portofolio](https://hertonjp.carrd.co/)
